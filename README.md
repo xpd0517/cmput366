@@ -1,1 +1,0 @@
-for those of you who think that I am weak
